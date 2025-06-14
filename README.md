@@ -1,2 +1,2 @@
 # localrepo
-# man fuck this shot, github sucks ass, fucking shit bitch ass!
+# man fuck this shit, github sucks ass, fucking shit bitch ass!
